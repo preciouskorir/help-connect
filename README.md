@@ -1,1 +1,1 @@
-# help-connect
+# savannah-women-tech-africa.
